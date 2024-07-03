@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bugfixer90
+- 👀 I’m interested in anything development 
+- 🌱 I’m currently learning graphic design
+- 💞️ I’m looking to collaborate on your projects
+- 📫 How to reach me discord @bugfixer0609__81459
